@@ -1,0 +1,2 @@
+# Khan
+Ga ada
